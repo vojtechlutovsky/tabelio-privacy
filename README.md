@@ -1,1 +1,1 @@
-# Tabelio-terms-of-use
+# Tabelio-privacy
